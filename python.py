@@ -1,0 +1,2 @@
+yeni açıklamalar eklenecek":wq
+
